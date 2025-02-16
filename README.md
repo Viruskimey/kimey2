@@ -1,2 +1,2 @@
 # kimey2
-we are venom
+ANG POGI KO HAYS!!!
